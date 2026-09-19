@@ -1,1 +1,0 @@
-# Jiring-sms-app
